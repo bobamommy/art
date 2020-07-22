@@ -1,4 +1,4 @@
-# These are a few of my favorite things...
+# Art supplies I use all the time
 
 This page contains [Amazon](http://www.amazon.com) affliate links to supplies and resources I use. I may receive a small commission if you use these links to purchase items.
 
@@ -27,7 +27,7 @@ While it's true that you'll get better results with better paper, if you're just
 
 ## Paintbrushes
 
-I fell down the rabbithole of paintbrushes when I first started watercolor painting. I experimented with several brands, synthetic and non-synthetic, different shapes and sizes. What I've learned is that what brush to use depends on what you like to paint. I love painting loose florals with thirsty, synthetic squirrel hair brushes. For more detailed work, I prefer a stiffer, smaller brushes. 
+I fell down the rabbithole of paintbrushes when I first started watercolor painting. I experimented with several brands, synthetic and non-synthetic, different shapes and sizes. What I've learned is that what brush to use depends on what you like to paint. I love painting loose florals with thirsty, synthetic squirrel hair brushes. For more detailed work, I prefer stiffer, smaller brushes. 
 
 - **My favorite brushes**: Silver Brush Black Velvet
 
@@ -51,12 +51,11 @@ I fell down the rabbithole of paintbrushes when I first started watercolor paint
   
   - [Quill, size 4](https://amzn.to/30E4uSo) - a larger brush that ends in a good point. Good for dropping in color and making large leaves.
   
-  - [4-piece set](https://amzn.to/2D2Fr31) - good starter set to try different shapes
+  - [4-piece set](https://amzn.to/2D2Fr31) - good starter set to try different shapes.
   
 ## Paints
 
 - **My favorite paints**: Daniel Smith Watercolor tubes
+  Their colors are so vibrant, they rewet beautifully, and there are lots of unique colors with interesting granulation. Start with the [Essentials](https://amzn.to/2CCRh4c) pack and you *might* fall in love with these paints and want to buy ALL the Daniel Smith colors once you've tried them. Not that I'm speaking from experience or anything...
   
-  - [Daniel Smith Extra Fine Essentials](https://amzn.to/2CCRh4c) 
-    
-    It's pricey, but the limited set of colors will allow you to flex your color theory/color mixing skills, and they are truly a joy to use. You *might* fall in love with these paints and want to buy ALL the Daniel Smith colors once you've tried them. Not that I'm speaking from experience or anything...
+  - [Daniel Smith Extra Fine Essentials](https://amzn.to/2CCRh4c) - this limited set of colors is all you need to get started and will allow you to flex your color theory/color mixing skills.
