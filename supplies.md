@@ -56,6 +56,7 @@ I fell down the rabbithole of paintbrushes when I first started watercolor paint
 ## Paints
 
 - **My favorite paints**: Daniel Smith Watercolor tubes
-  Their colors are so vibrant, they rewet beautifully, and there are lots of unique colors with interesting granulation. Start with the [Essentials](https://amzn.to/2CCRh4c) pack and you *might* fall in love with these paints and want to buy ALL the Daniel Smith colors once you've tried them. Not that I'm speaking from experience or anything...
+  
+  Their colors are so vibrant, they rewet beautifully, and there are lots of unique colors with interesting granulation. Start with the [Essentials pack](https://amzn.to/2CCRh4c) and you *might* fall in love with these paints and want to buy ALL the Daniel Smith colors once you've tried them. Not that I'm speaking from experience or anything...
   
   - [Daniel Smith Extra Fine Essentials](https://amzn.to/2CCRh4c) - this limited set of colors is all you need to get started and will allow you to flex your color theory/color mixing skills.
